@@ -1,4 +1,4 @@
-
+Enhance your CactusVPN experience with new CactusVPN Addon | smart-DNS + static-IP, the #1 addon. Includes smart-DNS and static-IP for a safer and more private online experience.
 
 
 
